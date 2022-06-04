@@ -7,7 +7,7 @@
 
 - 📫 How to reach me : **alexandra-dbrto@gmail.com**
 
-- 📄 Know about my experiences : [here is my CV](https://drive.google.com/file/d/1Yh8guRKrW7JK2pygmPjS9xd17k6UYjRc/view?usp=sharing)
+- 📄 Know about my experiences : [here is my CV](https://drive.google.com/file/d/10EAQjtjcjqw9emBtXuVvV695aOmTTHFX/view?usp=sharing)
 
 - ⚡ Fun fact : **I love linocut, screen printing and roller.**
 
